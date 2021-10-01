@@ -19,3 +19,4 @@ _Follow on Instagram : @danygsam
   </a>
   </a>
 </p>
+[net.txt](https://github.com/danygsam/danygsam/files/7263301/net.txt)
