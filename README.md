@@ -5,7 +5,7 @@
 
 #### ~ [_danygsam.github.io/_](https://danygsam.github.io/)
 
-_Follow on Instagram : @danygsam_
+_Follow on Instagram : @danygsam
 
 <br>
 <br>
